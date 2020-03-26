@@ -7,4 +7,7 @@ Absolute80sLOL
 * Under Pressure.
 * When will there be a harvest for the world.
 * China in your hand.
-* Girles want to have fun.
+## Post Isolation News
+* Girls want to have fun.
+* Run Away
+* We'll always betogether/
