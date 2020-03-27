@@ -10,4 +10,5 @@ Absolute80sLOL
 ## Post Isolation News
 * Girls want to have fun.
 * Run Away
-* We'll always betogether/
+* We'll always betogether
+* Lets get together and feel alright.
